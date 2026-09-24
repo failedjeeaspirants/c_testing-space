@@ -1,3 +1,2 @@
-is it ok to learn slow, because im a slow learn.
 and i think thats ok , many peoples are slow learns.
-also i do have ADHD......
+also i do have ADHD...... AND SO DOES EVERYONE
